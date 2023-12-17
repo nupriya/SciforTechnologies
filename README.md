@@ -1,1 +1,2 @@
 # SciforTechnologies
+https://docs.google.com/document/d/e/2PACX-1vQ93kEYeWWh7tcxcaNEkNlSAzOTFUWti2O8DGcqfoQZ0nJ3DQdQU8Ih32E5ND0RKTBQ15qOrfjQr6QH/pub
